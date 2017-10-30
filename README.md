@@ -1,2 +1,0 @@
-# Pratik
-For working purpose
